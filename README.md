@@ -50,7 +50,7 @@
 
 ## 📫 Get in Touch
 💌 Email: 16nkuz@gmail.com  
-🔗 [LinkedIn](https://itkuzmin.com)  
+🔗 [My Website](https://itkuzmin.com)  
 💬 [Telegram](https://t.me/kolya_sev)  
 
 ---
