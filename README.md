@@ -50,8 +50,8 @@
 
 ## 📫 Get in Touch
 💌 Email: 16nkuz@gmail.com  
-🔗 [LinkedIn](https://linkedin.com/in/yourprofile)  
-💬 [Telegram](https://t.me/yourprofile)  
+🔗 [LinkedIn](https://itkuzmin.com)  
+💬 [Telegram](https://t.me/kolya_sev)  
 
 ---
 ⭐️ From [NikolayKuzmin](https://github.com/yourusername)
