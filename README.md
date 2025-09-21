@@ -2,7 +2,7 @@
 
 🎯 **Project Manager | Product Owner | Business Development**  
 📍 Based in Moscow | Open for relocation & remote opportunities  
-🌐 [My Website](https://yourwebsite.com) | [LinkedIn](https://linkedin.com/in/yourprofile) | [Telegram](https://t.me/yourprofile)
+🌐 [My Website](https://itkuzmin.com) |  | [Telegram](https://t.me/kolya_sev)
 
 ---
 
